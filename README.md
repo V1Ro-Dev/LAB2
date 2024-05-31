@@ -1,2 +1,1 @@
 Условие ЛР: https://docs.yandex.ru/docs/view?url=ya-disk-public%3A%2F%2FEviiMy%2FHawqgDZ4SUp%2FToworZTMg%2BQqczB8c1Z60opvbDYoEjqnikNNwLUMDp5p6q%2FJ6bpmRyOJonT3VoXnDag%3D%3D%3A%2F%D0%9B%D0%B0%D0%B1%D0%BE%D1%80%D0%B0%D1%82%D0%BE%D1%80%D0%BD%D1%8B%D0%B5%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D1%8B%2F%D0%9B%D0%A02.pdf&name=%D0%9B%D0%A02.pdf&nosw=1
-Владелец репозитория: ИУ3-42Б, Митрофанов Матвей Дмитреивич, matveymdmd@mail.ru
